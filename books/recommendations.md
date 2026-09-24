@@ -1,2 +1,2 @@
-The Left Hand of Darkness
-Kindred
+Jujutsu Kaisen
+Chainsaw Man
